@@ -5,7 +5,7 @@
 
 - 👨‍💻 All of my projects are available at [https://github.com/Ashishroka45](https://github.com/Ashishroka45)
 
-- 📫 How to reach me **ashsishrokaha123@gmail.com**
+- 📫 How to reach me **ashishrokaha123@gmail.com**
 
 - ⚡ Fun fact **It’s chaotic, confusing, and honestly… kind of beautiful.**
 
